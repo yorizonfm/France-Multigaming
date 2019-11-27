@@ -1,1 +1,1 @@
-push
+yorizon.alwaysdata.net
